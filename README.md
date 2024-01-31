@@ -55,3 +55,11 @@ A soliloquy of effort, passion's call,
 A testament to the beauty of embracing the fall.
 
 - Harry Kang 
+
+
+<br>
+
+# Jean Adrover - Comment ###
+I think that this article starts a good discussion for anyone curious about industry-wide diversity challenges. What I appreciated was how unique perspectives from individuals from coding boot camps were highlighted as affordable pathways for learning software are needed in the industry.
+
+<br> I found the poem a nice read as well.
