@@ -18,43 +18,6 @@ The importance of ongoing support and an inclusive organizational culture is str
 
 
 
-# This is my poem
-In the realm where talents bloom and shine,
-I stand alone in this spotlight so divine.
-A humble soul, stripped bare of art,
-Yet within, I hold a hopeful heart.
-
-No dazzling strokes from a gifted hand,
-No verses that effortlessly expand.
-In this vast canvas, I'm but a void,
-A silent actor, talents unemployed.
-
-No silver tongue with eloquent sound,
-No grandeur in the words I've found.
-I linger in shadows, a barren stage,
-A player reciting a talentless page.
-
-Yet, in this emptiness, a tale does grow,
-A soliloquy of a spirit's ebb and flow.
-For in the absence of brilliance, I see,
-A quiet strength, a resilience in me.
-
-No grand symphony of talents to weave,
-Just a whispering wind that I perceive.
-In each stumble, in my faltering try,
-A spirit persists, refusing to lie.
-
-No spotlight, no applause to enthrall,
-Yet in this journey, I stand tall.
-For in the void, a treasure lies,
-A truth that echoes, a humble rise.
-
-So, let not the lack of talent confine,
-For within it, a unique path may twine.
-A soliloquy of effort, passion's call,
-A testament to the beauty of embracing the fall.
-
-- Harry Kang 
 
 
 <br>
